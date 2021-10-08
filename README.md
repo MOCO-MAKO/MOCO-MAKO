@@ -1,6 +1,6 @@
 # It'z MOCOOOOO ✨
 
-- ## FOLLOW MY FRIEND : <a href="https://github.com/SiddhantManze" alt="friend"> @SiddhantManze </a>
+- ## FOLLOW MY FRIEND : <a href="https://github.com/SiddhantManze" alt="friend"> Siddhant </a>
 - ## ALSO MY INSTAGRAM : <a href="https://www.instagram.com/meowed_meo/" alt="instagram"> Instagram </a>
 
 
